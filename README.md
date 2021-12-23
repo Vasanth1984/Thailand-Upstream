@@ -1,4 +1,4 @@
-# Thailand-Upstream
+# Thailand Upstream In Brief
 
 - What's happened since commercial oil production in Thailand began onshore in 1983?
 - Who were and are the key players?
